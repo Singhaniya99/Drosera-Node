@@ -1,7 +1,6 @@
 🪂🪂
 
-**❤️❤️Follow our TG for More Early Alpha: https://telegram.me/feature_earning**
----
+**❤️❤️Follow our TG for More Early Alpha : https://t.me/+kamRWpadSgc0NWY1
 
 # Recommended System Requirements
 * 2 CPU Cores
